@@ -15,3 +15,5 @@ Be sure to communicate:
 Your final presentation should be about 10-15 minutes long and is a chance to show off your thinking. Aside from presenting the above, please include:
 
 - The most useful concept(s) or interesting idea(s) you drew from the class (5 points)
+
+My case study can be access at the following link: https://econeighbor.squarespace.com/
